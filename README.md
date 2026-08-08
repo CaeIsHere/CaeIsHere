@@ -23,3 +23,5 @@
   —I really like making new friends!! but note sometimes i tend to isolate myself ALOT.
 
   I'll add more when I'll have time!!
+
+@kaite-kina THE MAPICC TO MY SPOKE🥹🥹💖 follow them NOW
