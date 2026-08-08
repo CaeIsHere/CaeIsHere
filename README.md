@@ -21,3 +21,5 @@
   —Im Russian, but i speak and learn many other languages.
 
   —I really like making new friends!! but note sometimes i tend to isolate myself ALOT.
+
+  I'll add more when I'll have time!!
