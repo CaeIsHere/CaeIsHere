@@ -22,8 +22,12 @@
 
   —I really like making new friends!! but note sometimes i tend to isolate myself ALOT.
 
+  —Currently I'm completely immersed with working on my mafia,sorry
+
   I'll add more when I'll have time!!
 
 @kaite-kina THE MAPICC TO MY SPOKE🥹🥹💖 follow them NOW
 
 love mi larptime trio🥺🥺 i lov.e u guys ok @wickedirene , @NPC-Till
+
+whoever is here from the mafia , hii !!
