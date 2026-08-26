@@ -31,3 +31,6 @@
 love mi larptime trio🥺🥺 i lov.e u guys ok @wickedirene , @NPC-Till
 
 whoever is here from the mafia , hii !!
+
+formerly known as ichiro/spoon.. frsk/hazbin fandoms iwec/dniuf
+p.s these names are kinda a sensitive topic to me
